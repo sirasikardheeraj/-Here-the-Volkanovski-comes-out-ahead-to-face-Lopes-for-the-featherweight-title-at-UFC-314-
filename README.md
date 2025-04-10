@@ -1,1 +1,12 @@
 # -Here-the-Volkanovski-comes-out-ahead-to-face-Lopes-for-the-featherweight-title-at-UFC-314-
+
+ which will be a great fight. Here is one humanized view of their match up:
+Alexander Volkanovski: The Savvy Veteran’s Reclamation Project
+Former UFC featherweight champion Alexander Volkanovski is on a quest to recover his title following a turbulent stretch. He’s 36, he’s dealing with massive challenges — among them back-to-back knockout losses to Islam Makhachev and Ilia Topuria. Despite the obstaclesthesame obstacles he faced bein GigaChikadze and Chan Sung Jung, Volkanovski is still feelingpositive going into the matchup, as he describes that theexperience of preparation is already on hisside. His motivation isn’t limited to self-centered glory; he fights for his family, which includes a new member on the way, and to silence doubters.
+Volkanovski's plan is to move around Lopes with his footwork to avoid the action and tire him out throughout the fight. He says Lopes’ style is aggressive but it can also work against him if he enters any exchanges recklessly looking for a finish.
+Diego Lopes: The New Hope’s Moment of Truth
+Diego Lopes, 30, who has shot up the featherweight ladder on a five-fight winning streak. He earned this title shot after sensibly taking a short notice fight against the undefeated Movsar Evloev, and he lost that bout but proved he is a game fighter. Lopes is very much a knockout artist with 12 of his career wins coming via submission, so it was expected he wasn't going to shy away from putting his grappling skills on display.
+By nature, Lopes is an opportunity hunter who embraces risk. And he believes this fight is the culmination of his hard work and focus and that he can exploit Volkanovski's recent weaknesses. As a result, Lopes’ approach will presumably stay aggressive, looking to land a fight-defining blow on Volkanovski from the get-go.
+The Clash of Styles
+This matchup is a clash of styles: the strategic Volkanovski offence versus the heavy, nasty Lopes attack. The fight will come down to whether Volkanovski can avoid Lopes' early blitz, and utilize his own cardio advantage in the championship rounds. On the other end of the spectrum, if Lopes can keep his pace and maybe land one good shot, he could swing a knockout victory and a title.
+Volkanovski is looking for redemption while Lopes is looking to win his first UFC belt, making the stakes of this fight high for both fighters. The matchup should result in an exciting clash of generations and fighting philosophies.
